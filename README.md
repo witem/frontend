@@ -15,7 +15,6 @@ to students.
 
 You can use these materials for self-education as well.
 
-
 ### Admission
 
 Admission for the main course was open until 13 Jan 2019 and now
